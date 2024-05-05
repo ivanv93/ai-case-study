@@ -15,4 +15,11 @@
 *
 * Some of the other major companies in the field are IBM, Microsoft, NVIDIA Monitaur, Inc., and Holistic AI
 ## Results
+* Credo was named as a Technology Pioneer in 2022 by the World Economic Forum. This award acknowledges start-up and growth-stage companies with the potential to impact business and society through new technologies.
+*
+* 
+## Recomendations
+*
+*
+*
 *
